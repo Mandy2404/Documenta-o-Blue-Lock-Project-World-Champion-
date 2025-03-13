@@ -73,13 +73,13 @@ Para maximizar o potencial dos personagens de três estrelas, é essencial combi
 
 Cartas de Treinamento Recomendadas: Treinamento de Imagem Mental e Máquina de Exercícios.
 
-Equipamento de Treino Recomendado: Easy listening music pra melhorar sua inteligência e High Speed Running machine para aprimorar sua agilidade e capacidade de passe.
+Equipamento de Treino Recomendado: Easy listening music pra melhorar sua inteligência.
 
 # Rensuke Kunigami
 
 Cartas de Treinamento Recomendadas: Treinamento de Drible e Ultra Shuttle Run.
 
-Equipamento de Treino Recomendado: Ankle Weight e rebound board para aumentar sua força física e potência de chute.
+Equipamento de Treino Recomendado: Ankle Weight e Rebound Board para aumentar sua força física e potência de chute.
 
 # Hyoma Chigiri
 
